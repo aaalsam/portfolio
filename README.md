@@ -1,6 +1,6 @@
 # Маслова Анастасия 
 
-![](https://w7.pngwing.com/pngs/643/462/png-transparent-tonkinese-cat-siamese-cat-havana-brown-birman-kitten-cats-mammal-animals-cat-like-mammal-thumbnail.png)
+![](https://www.datso.fr/images/dg_images/29_450x750_1x1/7162F8DB1DD1-29.jpg)
 
 ## Возраст 
 
